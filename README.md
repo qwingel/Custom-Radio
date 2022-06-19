@@ -6,7 +6,7 @@ If you press any line, a certain sound will be produced and a certain message wi
   
 If you have questions or found a error  
 Steam: https://steamcommunity.com/profiles/76561198421279054  
-Discord: amkz(Артем)#9564
+Discord: gazellebusiness#9564
 
 
 Кастомное радио для Контр-Страйк 1.6.  
@@ -16,4 +16,4 @@ Discord: amkz(Артем)#9564
   
 Если у вас есть вопросы или нашли ошибку:  
 Steam: https://steamcommunity.com/profiles/76561198421279054  
-Discord: amkz(Артем)#9564
+Discord: gazellebusiness#9564
